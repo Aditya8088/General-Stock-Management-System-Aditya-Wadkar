@@ -1,0 +1,1 @@
+# General-Stock-Management-System-Aditya-Wadkar
